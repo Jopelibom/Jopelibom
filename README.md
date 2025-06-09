@@ -1,6 +1,6 @@
 ## Hello, the name is Jope :bust_in_silhouette:
 
-  I like to make things and watch them burn, things I should post here, but I always forget and when I remember I've already lost the files :skull:.
+  I like to make things, things I should post here, but I always forget and when I remember I've already lost the files :skull:.
 
 ## Languages
 
